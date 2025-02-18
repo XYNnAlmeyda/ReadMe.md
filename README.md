@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi IM Kian Almeyda Currently im a Computer Science Student 2nd Year college 
+Hi I'm Kian Almeyda Currently I'm a Computer Science Student at Quezonian Educational College. Second Year College
 
 
 ## 🌐 Socials:
