@@ -1,5 +1,6 @@
 # 💫 About Me:
 Hi I'm Kian Almeyda Currently I'm a Computer Science Student at Quezonian Educational College. Second Year College
+LIFE IS FVK UP BRO
 
 
 ## 🌐 Socials:
